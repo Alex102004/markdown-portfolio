@@ -1,2 +1,2 @@
 get good kid 
-*get good kid_
+*getgoodkid
