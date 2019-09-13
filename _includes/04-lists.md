@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Carson failed school every year 
+- Carson needs to get good
+- Carson is getting good 
