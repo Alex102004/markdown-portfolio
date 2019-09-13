@@ -1,0 +1,3 @@
+- Carson failed school every year 
+- Carson needs to get good
+- Carson is getting good 
